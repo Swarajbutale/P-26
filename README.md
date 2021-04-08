@@ -1,0 +1,1 @@
+Recipe is about the delicious Indian Desert, 'Gulab Jamun'. We simply have to take some part of the dough and give it a round shape and fry it in the oil. Make sure that the dough is soft. At the same time add sugar in the boiled water to make syrup and then put all the Jamuns in the syrup. Gulab Jamuns are ready to eat.
